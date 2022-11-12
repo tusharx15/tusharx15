@@ -1,4 +1,4 @@
-### Hi there 👋
+### Lowkey sippin' on to something strange called LIFE!
 
 <!--
 **tusharx15/tusharx15** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
